@@ -1,1 +1,1 @@
-[Linkedin](www.linkedin.com/in/hosein-jafari-67b983354)
+[Linkedin](https://www.linkedin.com/feed/?trk=onboarding-landing)
